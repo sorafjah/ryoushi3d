@@ -1,1 +1,0 @@
-# ryoushi3d
